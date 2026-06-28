@@ -1,4 +1,4 @@
-# 
+# VIP Bybit bot التداول سير العمل for Mac OS | مميز Bybit bot التداول سير العمل for PC Windows. Featuring تحليل الزخم and استراتيجية العودة إلى المتوسط — optimized for maximum performance.
 
 
 
